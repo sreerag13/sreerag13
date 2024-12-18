@@ -39,8 +39,7 @@ Here’s a taste of what I bring to the keyboard:
 ## 📚 Fun Facts About Me
 
 - 🤹‍♂️ Jack of all tech trades and master of...well, many!  
-- 💬 Always up for a chat about tech, classical music, or the best memes. (Hint: It's always the one with cats 🐱).  
-
+- 💬 Always up for a chat about tech,gadgets, or the best memes.
 ---
 
 ## 🛠️ Tools I Use
